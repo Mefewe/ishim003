@@ -1,2 +1,2 @@
 # ishim003
-trash form russia
+сделано с душой
